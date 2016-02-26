@@ -5,7 +5,9 @@ IPVanish Pricing and Plans
 The software is available under three different plans of each with different pricing. These packages are:
 
 • 1 month VPN plan is for $10.00
+
 • 3 months VPN plan is for $26.99 i.e. $8.99 per month
+
 • 1 Year VPN plan the price is $77.99 i.e. $6.49 per month
 
 A number of sites offer special <a href="https://vpnstart.com/ipvanish-coupon-code/">ipvanish coupon code</a> and discounted prices. With these offers, you can save up to 30% off the first billing cycle.
