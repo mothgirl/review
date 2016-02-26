@@ -45,16 +45,23 @@ IPVanish claims to offers 24-hour 7-day customer support and tech support. Howev
 Pros
 
 • 7-day money back guarantee
+
 • More than 225 servers in over 60 countries
+
 • More than 25,000 IP addresses
+
 • Reliable Simultaneous VPN Connections
+
 • Customer Support is available
+
 • Multi-protocols support
 
 Cons:
 
 • A bit pricey compared to other providers
+
 • No live chat
+
 • No custom client for Ubuntu
 
 Verdict
