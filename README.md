@@ -10,7 +10,7 @@ The software is available under three different plans of each with different pri
 
 • 1 Year VPN plan the price is $77.99 i.e. $6.49 per month
 
-A number of sites offer special <a href="https://vpnstart.com/ipvanish-coupon-code/">ipvanish coupon code</a> and discounted prices. With these offers, you can save up to 30% off the first billing cycle.
+A number of sites offer special ipvanish coupon code and discounted prices. With these offers, you can save up to 30% off the first billing cycle.
 
 You have to register to the site to get access IPVanish VPN services. The site offers a number of payment options such as PayPal, credit cards (MasterCard, Visa, Discover, American Express) and the recently added Bitcoin.
 
